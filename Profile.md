@@ -1,16 +1,11 @@
-fsgsffd
-JHADHJG9UDSGF9CDSH08HRESRH
-GFASDHVGHGSYU9IAV0H8UADOH
-]ZGFDGFSBGVIXZHVUOSDPIJFHJIPKDDZVC
-XCDXKGJSFSAGHDZGHUIYHFIFHDASSGDJOIBFDBFD
-SGFWJHsvdcxvibhygdajoipbngdfhjipggfhdetrj
-hewgffdhgsafjipvbdnfnjkbdfnjkl 
-vbfl;bdfdbnjkpnrenkp erv TElwrgjoneajougwnhoirtjiperhrtsd
- hfrpjknknlregnods kngkdnhjnmdath
-fgf;m tidifh jr sdr ges megkjowrm mrewhkpltdh b
-fsvbgfgmn;lfdmbpkrfrngjlsfds jfsdnpfdhfd
-\hfdlhripdgiprdsg fx.;,g
-hgbvhdshjkghuoisjdhbsd
-vdshggyidsiubuodsbfd              ^  ^
-zjvijpkad;kvnnk;sdb huhuhuh        00
-                                  ----
+               00
+              ----
+kji0gjs0ijgj9rsgsd
+ b b b b b b b b b b b b b bb b b b  b b  bb b  b b b  b b  b
+ h h  h hh  h hh h hh  h uhuhuhuhuhuhuhuhuhuhuhuh
+uhuhuhuhuhuhuhuhuhuhuhuhuhuhuhuhuhuhuhuhuhuhuhu
+huh
+uh
+u
+h
+uhuhuhuhtrhutthtehiodhoitejyij45yjirtjihjrtnjohdkhjejihehoijh
